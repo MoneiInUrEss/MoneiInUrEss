@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Monei
+- 👀 I’m interested in gaming and programming
+- 📫 @diplomazia on Discord
